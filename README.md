@@ -1,4 +1,4 @@
-# Kobe v Jordan v Lebron
+# Kobe Bryant v Micheal Jordan v Lebron James
 
 #### 3 legends from the NBA. In any debate with NBA being the topic, these 3 names always find their way into the coversation.
 
