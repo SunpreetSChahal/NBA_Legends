@@ -4,3 +4,5 @@
 
 Today I will be comparing the statistics of each player to deterime, once and for all, who is the true Greatest Of All Time?
 I will be looking at the following statistics: career stats, all-star game stats and average game stats. 
+
+Data source: https://www.basketball-reference.com/
