@@ -1,6 +1,6 @@
 # Kobe Bryant v Micheal Jordan v Lebron James
 
-![KB-MJ-LJ](C:\Users\chaha\Pictures\KB,LJ,MJ.jpg?raw=true "Title")
+![alt text](https://i.pinimg.com/originals/b0/da/b3/b0dab3f662a5272c80d7e5730ffdd084.png)
 
 #### 3 legends from the NBA. In any debate with NBA being the topic, these 3 names always find their way into the coversation.
 
